@@ -21,5 +21,5 @@ Soutenu le 25/11/2020
 Jury :
 
 LECLAIRE Françoise
-BRETEGNIER Aud
+BRETEGNIER Aude
 
